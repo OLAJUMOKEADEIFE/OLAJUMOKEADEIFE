@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me on Gmail atereolajumoke4@gmail.com
 - 😄 Pronouns: She/Her
-- ⚡ Fun fact: Analysis Data gives me Joy
+- ⚡ Fun fact: Analysising Data gives me this unexplainable Joy
 
 <!---
 OLAJUMOKEADEIFE/OLAJUMOKEADEIFE is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
